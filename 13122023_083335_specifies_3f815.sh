@@ -1,0 +1,1 @@
+The first television show to show any portion of a toilet was on "Leave it to Beaver." After fighting for ten weeks to show the toilet, CBS would only allow the producers to show the toilet tank, and not the whole toilet
