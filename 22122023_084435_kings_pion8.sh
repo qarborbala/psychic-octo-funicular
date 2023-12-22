@@ -1,0 +1,1 @@
+After the Krakatoa volcano eruption in 1883 in Indonesia, many people reported that, because of the dust, the sunset appeared green and the moon blue. The moon was said to appear blue for almost two years.
